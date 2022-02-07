@@ -8,4 +8,4 @@ Currently a student doing Bachelors in Information Technology.
  
  
 In my spare time
-I listen to music, read book and play guitar( begginer at this)
+I listen to music, read books and play guitar( begginer at this)
